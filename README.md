@@ -1,3 +1,3 @@
 # Вроде получилось, а вроде нет #
 ### Нет идей для картинки ###
-![ZZZ][dea2b59fc2a4d0116735d7c4072e51f9.jpg]
+![ZZZ[/home/yegor/Desktop/picture.jpg]
