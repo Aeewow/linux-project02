@@ -1,3 +1,3 @@
 # Вроде получилось, а вроде нет #
 ### Нет идей для картинки ###
-![ZZZ](https://ru.wallpaper.mob.org/pc/image/arhitektura-ejfeleva_bashnya-goroda-noch-13435.jpg)
+![ZZZ](https://fullhdoboi.ru/wp-content/uploads/_ph/6/735811463.jpg)
